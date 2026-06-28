@@ -1,4 +1,4 @@
-# 
+# Último Aseprite extensiones para Mac OS | Inteligente Aseprite extensiones para PC Windows. Con kit de marca y soporte multipágina — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
